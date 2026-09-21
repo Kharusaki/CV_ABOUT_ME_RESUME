@@ -25,9 +25,8 @@
 Буду рада вашим откликам!
 
 
-# #TG me @kharusaki
-or
-# #Email me kharusaki@yandex.ru
+#### 📩 TG: [@kharusaki](https://t.me/kharusaki)
+#### 📧 Email: [kharusaki@yandex.ru](mailto:kharusaki@yandex.ru)
 
 
 # Личные проекты
